@@ -1,6 +1,6 @@
 # Coleman Griffith
 
-UT Austin | Communication & Leadership (Internal Transfer Applicant – McCombs)
+UT Austin | McCombs School of Business
 
 ## Focus
 - Finance + business analytics
